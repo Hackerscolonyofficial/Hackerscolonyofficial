@@ -8,7 +8,9 @@
 
 #### ☞Learn Hacking from beginners to advance 
 
-#### ☞Cracked Softwares ☞Paid & Premium app 
+#### ☞Cracked Softwares 
+
+#### ☞Paid & Premium app 
 
 #### ☞Hack tip and Tricks etc.
 
